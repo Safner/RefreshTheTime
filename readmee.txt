@@ -1,1 +1,1 @@
-ti gay
+ti luchi
